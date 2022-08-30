@@ -1,1 +1,1 @@
-This directory will contain amazing stuffs
+This directory will contain amazing stuffs. Just stay connected
